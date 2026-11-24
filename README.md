@@ -1,3 +1,3 @@
 # my-portfolio
-New to repository on Github.
-I am a very ambitious person who is always looking for new opportunities to learn new skills. I love jogging and hiking in the bush and mountains. I enjoy meeting people from all walks of life and exchanging cultures.
+Hiking as a hobby.
+I am a very ambitious person, always looking for new opportunities to learn new skills and discover hidden hiking gems. I love exploring nature, jogging and hiking in the bush and mountains. I also enjoy meeting people from all walks of life and exchanging cultures.
